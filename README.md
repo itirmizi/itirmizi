@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Started off and will mess up. Part of the game :)
 
 <!--
 **itirmizi/itirmizi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
